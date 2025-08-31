@@ -1,3 +1,7 @@
+<p align="left"> <img src="https://komarev.com/ghpvc/?username=gbadebofaith&label=Profile%20views&color=0e75b6&style=flat" alt="gbadebofaith" /> </p>
+
+
+
 # Hi there, I'm Faith Gbadebo! 👋
 
 ## About Me 🚀
